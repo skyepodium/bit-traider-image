@@ -1,0 +1,1 @@
+![cover](./image/bittraider_wallpaper.png)
